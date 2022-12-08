@@ -18,4 +18,4 @@
 >Darth Sidious </br>
 >Count Dooku </br>
 
-*The story focuses on the entire conflict in the Clone Wars era between The Republic and The Confederacy of Independent Systems.*
+*The story focuses on the entire conflict in the Clone Wars era between The Republic and The Confederacy of Independent Systems to fight for peace and prosperity of the entire galaxy*
